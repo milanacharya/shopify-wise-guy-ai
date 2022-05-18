@@ -1,0 +1,1 @@
+# shopify-wise-guy-ai
